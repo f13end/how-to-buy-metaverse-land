@@ -5,8 +5,8 @@ The [metaverse land](http://landindex.io "metaverse land") is a virtual world th
 
 In the metaverse, you can buy land and build anything you can imagine. You could create a virtual storefront, a gaming arena, or even your own personal paradise. The possibilities are endless.
 
-**If you're interested in buying land in the metaverse, here's what you need to know:
-**
+**If you're interested in buying land in the metaverse, here's what you need to know:**
+
 - Choose a platform. There are a number of different platforms that offer virtual real estate. Some of the most popular include Decentraland, The Sandbox, and Somnium Space. Each platform has its own unique features, so it's important to choose one that's right for you.
 
 - Buy some cryptocurrency. Most platforms require you to pay for land with cryptocurrency. The most common cryptocurrency used for virtual real estate is Ethereum.
@@ -45,7 +45,7 @@ Once you've found the perfect piece of land, you need to purchase it. This can b
 
 Buying land in the metaverse is a relatively new concept, so there are still a few risks involved. However, the potential rewards are great. If you're looking to get involved in the metaverse, buying land is a great way to start.
 
-Here are some additional** tips for buying land in the metaverse:**
+Here are some additional **tips for buying land in the metaverse:**
 
 1. Do your research. Before you buy any land, it's important to do your research and understand the platform you're buying on. This includes understanding the different types of land available, the price of land, and the potential risks involved.
 
